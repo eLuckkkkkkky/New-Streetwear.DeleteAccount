@@ -9,4 +9,4 @@
 
 
 ### step 3.
-![AF1ED01E-9864-4812-9891-C543B356E156](https://github.com/eLuckkkkkkky/New-Streetwear.DeleteAccount/assets/151702830/38020074-ff1a-4ab7-897f-2d3485daff7f)
+![17D8BCD4-7B70-42E9-A3DF-60F234E68C14](https://github.com/eLuckkkkkkky/New-Streetwear.DeleteAccount/assets/151702830/bbaacf37-60ac-4737-9e26-74c380ae009c)
